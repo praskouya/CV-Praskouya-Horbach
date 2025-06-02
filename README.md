@@ -1,4 +1,4 @@
-## You can download my CV by [clicking here](https://github.com/praskouya/CV-Prakouya-Horbach/raw/main/CV.PRASKOUYA.HORBACH.(2).pdf).
+## You can download my CV by [clicking here](https://github.com/praskouya/CV-Praskouya-Horbach/blob/a922c523cdb0332a2b210641b989322bb3215f21/CV%20PRASKOUYA%20HORBACH%20(2).pdf)).
 ## My socials: 
 ### [Linkedin](https://www.linkedin.com/in/phorbach/)
 ### [Instagram](https://www.instagram.com/heypashkaa?igsh=ZHllZzQwdzhoaWQx)
